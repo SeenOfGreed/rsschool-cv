@@ -1,1 +1,1 @@
-https://SeenOfGreed.github.io/rsschool-cv/cv
+https://SeenOfGreed.github.io/rsschool-cv/
